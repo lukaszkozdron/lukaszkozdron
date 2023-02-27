@@ -5,10 +5,10 @@
 I am PowerBi practicioner. 
 
 My linked in profile:
-
+...
 
 My portfolio project:
-
+...
 
 My website: 
 
