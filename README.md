@@ -5,7 +5,7 @@
 I am PowerBi practicioner. 
 
 My linked in profile:
-...
+https://www.linkedin.com/in/lukasz-kozdron/
 
 My portfolio project:
 ...
